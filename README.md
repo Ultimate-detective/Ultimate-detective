@@ -1,5 +1,6 @@
 
-![image](https://github.com/Ultimate-detective/Ultimate-detective/assets/140108840/aa7184c3-9de2-4f13-af98-1ede2115cc54)
+![image](https://github.com/Ultimate-detective/Ultimate-detective/assets/140108840/9262d018-652c-48ef-bf79-fb84b3b314d6)
+
 
 hai!!! Lynx / Venus 
 
