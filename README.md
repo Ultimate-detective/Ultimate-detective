@@ -2,7 +2,7 @@
 ⠀⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀    ⠀     ⠀   ⠀    ⠀      ![](https://i.pinimg.com/564x/77/62/31/776231baa7873c5c73ba3b9e2344e370.jpg)
 
 
-hai!!! Lynx / Venus 
+hai!!! Chara / Lynx
 
 read my rentry :3
 
