@@ -1,5 +1,5 @@
 
-![image](https://github.com/Ultimate-detective/Ultimate-detective/assets/140108840/9262d018-652c-48ef-bf79-fb84b3b314d6)
+⠀⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀    ⠀     ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀    ⠀      ![](https://i.pinimg.com/564x/77/62/31/776231baa7873c5c73ba3b9e2344e370.jpg)
 
 
 hai!!! Lynx / Venus 
