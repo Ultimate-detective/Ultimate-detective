@@ -4,6 +4,8 @@
 
 hai!!! Chara / Lynx
 
+⠀⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀    ⠀  ⠀⠀  ⠀   ⠀   ⠀    ⠀   ⠀    ⠀     ⠀   ⠀    ⠀         ⠀   ⠀    ⠀      <img src="https://64.media.tumblr.com/73160aeb9fa331be721de001e9844713/891ddb6fab05f3d7-54/s250x400/aea3c92325dacb3780990c4bf02686b0157e9ffe.gifv"/>
+
 read my rentry :3
 
 
