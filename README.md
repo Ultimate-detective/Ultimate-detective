@@ -1,5 +1,5 @@
 
-<img src="https://i.pinimg.com/originals/7d/1a/cd/7d1acdf2683c5f79b91eb1d951b0134c.gif"/>
+⠀⠀  ⠀   ⠀   ⠀ ⠀⠀  ⠀   ⠀   ⠀  ⠀     ⠀   ⠀   ⠀  ⠀   ⠀    ⠀   <img src="https://64.media.tumblr.com/435a472e0ff3426a68ce491e5933942a/1938b7881a01c1b6-d2/s500x750/0a8472dc653bc22a48045db3c41f619cc0bc4779.gifv"/>
 
 
 hai!!! Chara / Lynx
